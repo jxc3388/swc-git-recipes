@@ -3,6 +3,6 @@
 ## Ingredients
 - avocado
 - lemon
-- salt
+- 1/4 tsp salt
 
 ## Instructions
